@@ -1,2 +1,0 @@
-# zhoubao
-在issue
